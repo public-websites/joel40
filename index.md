@@ -7,7 +7,7 @@ före den 1a Augusti är vi mycket tacksamma.
 
 **Välkommna!**
 
-## Praktikaliter
+## Praktikaliteter
 
 ### Tider
 

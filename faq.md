@@ -36,6 +36,3 @@ Nej, men ha gärna kläder på dej.
 
 ### Vad ska du ha svaren på de udda frågorna till?
 Vet inte ännu, kanske kommer på något!
-
-### Får jag ta med mej X eller ordna en en kul grej?
-Absolut!
