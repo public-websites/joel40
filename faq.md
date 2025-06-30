@@ -16,14 +16,14 @@ Fråga, det finns plats för några hos oss. Annars är det nog [Alingsås stads
 
 ### När fyller du år?
 
-16 feb, så är ju faktiskt 40.5 år
+16 feb, så är ju faktiskt ~40.5 år
 
 ### Hur många kommer?
 ca 30 pers
 
 ### Vad önskar du dej?
 
-Jag har inte skrivit någon önskelista, jag har ju (nästan) allt en lagom tjock man i sina bästa år behöver. 
+Jag har inte skrivit någon önskelista, jag har ju (nästan) allt en *lagom tjock man i sina bästa år*™ behöver. 
 Vill du stödja någon frivilligorganisation gillar jag dessa:
 
 * [Majblomman](https://majblomman.se/stod-oss/stod-oss/) 

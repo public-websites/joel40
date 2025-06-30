@@ -3,7 +3,7 @@ plugins:
 - jekyll-remote-theme # add this line to the plugins list if you already have one
 
 title: "Detta ska firas!"
-description: "Jag har klart mej 40 varv runt solen, yay!"
+description: "Jag har klarat mej 40 varv runt solen, yay!"
 
 show_downloads: false
 
