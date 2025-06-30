@@ -17,6 +17,8 @@ Västra bodarnevägen 3, Alingsås.
 
 Svar anhålles senast 31e Juli, önskar att alla svarar nedan men du kan svara för din respektive om du vill.
 
-## Fråror och svar
+Svara gör du [här](https://docs.google.com/forms/d/e/1FAIpQLSdt3tNHtrMsa5QqN5EWIQ-Ra5dY1HEjQWOg8XKJ3NAqfUctGg/viewform?usp=dialog)
+
+## Frågor och svar
 
 [FAQ](./faq.html).
