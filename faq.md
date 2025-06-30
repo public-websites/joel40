@@ -1,4 +1,4 @@
-# Vanligt ställda frågor och annan kortfattad information.
+# Vanligt ställda frågor och övrig information.
 
 ### Får jag ta med mej min [fru/man/sambo/ect]?
 Ja! Absolut jätteja.
