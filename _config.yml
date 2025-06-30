@@ -7,3 +7,5 @@ description: "Jag har klart mej 40 varv runt solen, yay!"
 
 show_downloads: false
 
+github:
+  is_project_page: false
