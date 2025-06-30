@@ -18,6 +18,9 @@ Fråga, det finns plats för några hos oss. Annars är det nog [Alingsås stads
 
 16 feb, så är ju faktiskt 40.5 år
 
+### Hur många kommer?
+ca 30 pers
+
 ### Vad önskar du dej?
 
 Jag har inte skrivit någon önskelista, jag har ju (nästan) allt en lagom tjock man i sina bästa år behöver. 
@@ -33,3 +36,6 @@ Nej, men ha gärna kläder på dej.
 
 ### Vad ska du ha svaren på de udda frågorna till?
 Vet inte ännu, kanske kommer på något!
+
+### Får jag ta med mej X eller ordna en en kul grej?
+Absolut!
