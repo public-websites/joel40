@@ -2,9 +2,6 @@
 
 9e Augusti, ni är välkomna 1600, då börjar vi med lite mingel. Det kommer det att serveras mat, öl och vin
 
-## Barn
-Få/inga barn kommer att vara med men kniper det så ta med dom
-
 ## Bjudna
 
 Har du fått den här länken av mej så är du och **din käresta** bjuden

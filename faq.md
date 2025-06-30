@@ -1,5 +1,11 @@
 # Vanligt ställda frågor och annan kortfattad information.
 
+### Får jag ta med mej min [fru/man/sambo/ect]?
+Ja! Absolut jätteja.
+
+### Ska vi ta med barnen?
+Korta svaret; nej. Vi har inte med våra men om det blir problem så för all del, ta med dom. Helre det än att ni inte kommer!
+
 ### Ska jag ta med mej dricka?
 
 Om du vill, jag tar inte illa upp :)
@@ -24,3 +30,6 @@ Vill du stödja någon frivilligorganisation gillar jag dessa:
 ### Är det någon klädkod?
 
 Nej, men ha gärna kläder på dej.
+
+### Vad ska du ha svaren på de udda frågorna till?
+Vet inte ännu, kanske kommer på något!
