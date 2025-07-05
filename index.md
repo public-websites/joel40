@@ -5,6 +5,8 @@ Jag vill mycket gärna veta hur många vi blir så om du/ni kunde fylla i formul
 [här](https://docs.google.com/forms/d/e/1FAIpQLSdt3tNHtrMsa5QqN5EWIQ-Ra5dY1HEjQWOg8XKJ3NAqfUctGg/viewform?usp=dialog) 
 före den 1a Augusti är vi mycket tacksamma.
 
+Håll lite koll på denna sida, kan komma uppdateras med ny info.
+
 **Välkommna!**
 
 ## Praktikaliteter
