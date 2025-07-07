@@ -20,7 +20,7 @@ Inte för att sätta allt för stor press på dej men skulle du kunna **dela** l
 
 ### Bjudna
 
-Har du fått den här länken av mej så är du och **din käresta** bjuden
+Har du fått den här länken av mej så är du **+1** bjudna, har du fått den av någon annan är du en +1 och där med exakt lika bjuden 🥳
 
 ### Plats
 
