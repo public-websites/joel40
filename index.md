@@ -14,13 +14,13 @@ Inte för att sätta allt för stor press på dej men skulle du kunna **dela** l
 
 ## Praktikaliteter
 
-### Tider
+### Tid
 
 9e Augusti, ni är välkomna 1600, då börjar vi med lite mingel. Det kommer det att serveras mat, öl och vin
 
 ### Bjudna
 
-Har du fått den här länken av mej så är du **+1** bjudna, har du fått den av någon annan är du en +1 och där med exakt lika bjuden 🥳
+Har du fått den här länken av mej så är du **+1** bjudna, har du fått den av någon annan är du en utvald +1 och där med exakt lika välkommen 🥳
 
 ### Plats
 
