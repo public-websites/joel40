@@ -7,7 +7,8 @@ Håll lite koll på denna sida, kan komma uppdateras med ny info.
 
 ## Spellista ##
 
-[https://spotify.link/9djBExlwGVb](https://spotify.link/9djBExlwGVb)
+[https://spotify.link/AcZ8oVEwGVb](
+https://spotify.link/AcZ8oVEwGVb)
 
 ## Sharing is caring
 Inte för att sätta allt för stor press på dej men skulle du kunna **dela** länk hit med din +1? Tack och bock!
